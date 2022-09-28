@@ -1,5 +1,9 @@
 ### Hi there 👋
 
+#I'm **Léandre**.
+
+💬 Reach me by email at: leandrehonore650@gmail.com
+
 <!--
 **Simpenzwe-Honore-Leandre/Simpenzwe-Honore-Leandre** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
