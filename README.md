@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-#I'm **Léandre**.
+I'm **Léandre**.
 
 💬 Reach me by email at: leandrehonore650@gmail.com
 
